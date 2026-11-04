@@ -1,3 +1,14 @@
+Hi, I'm Prem Kumar Loganathan
+
+Founder, d247 consulting · Business & Brand Development · Go-to-Market Strategy
+
+📍 Chennai, India
+
+I bring 18+ years of experience in building new businesses and growing existing brands. I help companies enter markets, sharpen their positioning, and close deals across borders.
+
+
+
+
 🎯 What I Do
 
 Focus area & What it means in practice
