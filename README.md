@@ -13,10 +13,11 @@ What I Do
 * Cross-Border Negotiation	Structuring and closing deals across geographies and cultures
 * Client Interaction	Building long-term relationships through clear communication and reliable delivery
 
-🤝 Let's Connect 
-LinkedIn: https://www.linkedin.com/in/premkumarloganathan/
-Website: www.d247consulting.in 
-Email:     pk@d247consulting.in
+Let's Connect
+
+* LinkedIn: https://www.linkedin.com/in/premkumarloganathan/
+* Website: www.d247consulting.in 
+* Email:     pk@d247consulting.in
 
 If you're working on something in these areas, feel free to reach out through LinkedIn or my email.
 
