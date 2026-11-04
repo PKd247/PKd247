@@ -1,3 +1,5 @@
+![Prem Kumar Loganathan - Business & Brand Development](banner.png)
+
 Hi, I'm Prem Kumar Loganathan, Founder, d247 Consulting
 
 I bring 18+ years of experience in building new businesses and growing existing brands. I help companies enter markets, sharpen their positioning, and close deals across borders.
