@@ -1,4 +1,4 @@
-![Prem Kumar Loganathan - Business & Brand Development](banner.png)
+![Prem Kumar Loganathan - Business & Brand Development](banner2.png)
 
 Hi, I'm Prem Kumar Loganathan, Founder, d247 Consulting
 
