@@ -7,7 +7,7 @@ I bring 18+ years of experience in building new businesses and growing existing 
 What I Do
 
 •	Business & Brand Development  
-•	Go-to-Market Strategy
+•	Go-to-Market Strategy  
 •	Power BI for Real Estate
 
 * Business Development	Opening new markets, building partnerships, and growing revenue for new and established businesses
