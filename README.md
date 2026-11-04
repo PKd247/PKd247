@@ -1,16 +1,25 @@
-## Hi there!!
+🎯 What I Do
 
-<!--
-**PKd247/PKd247** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Focus area & What it means in practice
+Business Development	Opening new markets, building partnerships, and growing revenue for new and established businesses
+Brand Development	Positioning and strengthening brands so they stand out and earn trust
+Go-to-Market (GTM) Strategy	Turning a product or service into a clear, executable market-entry plan
+Cross-Border Negotiation	Structuring and closing deals across geographies and cultures
+Client Interaction	Building long-term relationships through clear communication and reliable delivery
+🏢 d247 consulting
 
-Here are some ideas to get you started:
+I run d247 consulting, an advisory practice focused on helping businesses grow through strategy, brand and market development.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌐 www.d247consulting.in
+
+🤝 Let's Connect
+💼 LinkedIn: in/premkumarloganathan
+🌐 Website: www.d247consulting.in
+📍 Based in Chennai, India
+💬 Open to Conversations About
+Market entry and GTM planning
+Brand strategy and positioning
+Partnership and cross-border business development
+Consulting engagements
+
+If you're working on something in these areas, feel free to reach out through LinkedIn or my email.
